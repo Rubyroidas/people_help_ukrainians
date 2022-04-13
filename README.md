@@ -4,7 +4,7 @@
 
 - [Ukraine takes shelter](https://www.ukrainetakeshelter.com)
 
-Перелік оферів від іноземців, хто може допомогти українцям
+Перелік пропозицій житла від іноземців для українців
 
 - [I can help](https://icanhelp.host)
 
